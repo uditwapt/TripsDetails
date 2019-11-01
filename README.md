@@ -229,7 +229,7 @@ Costing:
 - RE Himalayan (With Pillion)	INR 31,499/-
 - Self Bike	INR 24,499/-
 
-To know more about the trip - 
+To know more about the trip - https://www.wanderon.in/sikkim-roadtrip
 
 Contact - 
 Call - +918178975830 
