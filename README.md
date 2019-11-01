@@ -17,7 +17,7 @@ Itinerary:
 - ➤ Visit the Chokling Monastery, Sherab Ling Monastery, Bir Local market for some shopping and explore some of the local restaurants/cafe for some Tibetan cuisine.
 - ➤ After having Lunch at Bir, start your journey to Billing.
 - ➤ Reach Billing by evening and enjoy the beautiful sunset in the Mountains.
-- ➤ Dinner at Bonfire and overnight camping at Billing under sky studded with stars.
+➤ Dinner at Bonfire and overnight camping at Billing under sky studded with stars.
 
 Day 2: High Fly | Return
 ➤ Wake up early morning and after having breakfast set yourself up for the FLY of your Life.
@@ -59,12 +59,13 @@ Facebook Community - http://bit.ly/WanderOnFbGroup
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
 
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-## 
+##Meghalaya Road Trip
 
-WanderOn Weekend Trip 
+WanderOn Weekend Trip Meghalaya Road Trip(5 Nights/6 Days)
 
 About:
-
+Meghalaya- A Potpourri of Beauty & Culture
+Confused about choosing your next travel destination? Wondering whether to go trekking in forests, or take a dip in blue lagoons or just relax by the beachside? What if we tell you there exists a magical land very much in India that offers all of these activities and many more without burning a hole in your pocket? Sounds dreamy, right? Well, pinch yourself to reality because WanderOn is taking you all the way to the abode of clouds with our Meghalaya tour package!
 
 Itinerary:
 Day 1: Guwahati Arrival | Umiam Lake | Overnight at Shillong
@@ -129,11 +130,13 @@ Exclusions:
 ✗ Any other costing involved due to any kind of natural calamity, forced circumstances, which are out of our control.
 ✗ Any other expense not mentioned in the inclusion column.
 
+Note: INR 10,000/- needs to be submitted as security for the bike before the start of the trip. Any damage to the bike, except engine damage, has to be borne directly by the client.
+
 Costing:
 * Tempo traveler	INR 17,999/-
 * Bike				INR 21,999/-
 
-To know more about the trip - 
+To know more about the trip - https://www.wanderon.in/meghalayaroadtrip/
 
 Contact - 
 Call - +918178975830 
