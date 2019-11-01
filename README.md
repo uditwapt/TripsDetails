@@ -10,14 +10,14 @@ Bir is also an important center of the Tibetan exile community: the lower half o
 
 
 Itinerary:
-Day 1: Bir Local Sightseeing | Trek from Bir to Billing
-➤ Start from Delhi by 08:30 p.m. on Day 0.
-➤ Reach Bir by morning.
-➤ After having breakfast, explore the local village of Bir.
-➤ Visit the Chokling Monastery, Sherab Ling Monastery, Bir Local market for some shopping and explore some of the local restaurants/cafe for some Tibetan cuisine.
-➤ After having Lunch at Bir, start your journey to Billing.
-➤ Reach Billing by evening and enjoy the beautiful sunset in the Mountains.
-➤ Dinner at Bonfire and overnight camping at Billing under sky studded with stars.
+- Day 1: Bir Local Sightseeing | Trek from Bir to Billing
+- ➤ Start from Delhi by 08:30 p.m. on Day 0.
+- ➤ Reach Bir by morning.
+- ➤ After having breakfast, explore the local village of Bir.
+- ➤ Visit the Chokling Monastery, Sherab Ling Monastery, Bir Local market for some shopping and explore some of the local restaurants/cafe for some Tibetan cuisine.
+- ➤ After having Lunch at Bir, start your journey to Billing.
+- ➤ Reach Billing by evening and enjoy the beautiful sunset in the Mountains.
+- ➤ Dinner at Bonfire and overnight camping at Billing under sky studded with stars.
 
 Day 2: High Fly | Return
 ➤ Wake up early morning and after having breakfast set yourself up for the FLY of your Life.
@@ -358,6 +358,7 @@ Facebook: www.facebook.com/wander.on
 Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
+
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 ##
