@@ -1,6 +1,11 @@
 ##TripsDetails
 
 
+##birbilling
+##Meghalaya Road Trip
+##sikkim-roadtrip
+##Bhutan Road Trip
+
 ##Bir Billing
 WanderOn Weekend Trip with birbilling (1 Night/2 Days)
 
@@ -245,26 +250,94 @@ Facebook Community - http://bit.ly/WanderOnFbGroup
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-##
+##Bhutan Road Trip
 
-WanderOn Weekend Trip 
+WanderOn Weekend Trip Bhutan (6 Nights/7 Days)
 
 About:
+Bhutan is no ordinary place. It is the last great Himalayan kingdom, shrouded in mystery and magic, where a traditional Buddhist culture carefully embraces global developments.
+
+Low Volume, High Value Tourism
+The Bhutanese pride themselves on a sustainable approach to tourism in line with the philosophy of Gross National Happiness. Foreign visitors famously pay a minimum tariff of US$250 per day, making it seem one of the world’s more expensive destinations. However, this fee is all-inclusive – accommodation, food, transport and an official guide are all provided, so it’s not a bad deal. You don’t have to travel in a large group and you can arrange your own itinerary. What you won’t find is budget backpacker-style travel.
 
 
 Itinerary:
-➤
+➤ 
+29th December
+➤ Arrive at Siliguri by 12pm, meet your fellow travelers, collect your bikes and start your ride to Phuntsholing
+➤ The journey will take you through the winding roads and dense forest lands of West Bengal.
+➤ Reach Phuntsholing by the evening.
+➤ Check into the hotel, explore the beautiful border town.
+➤ Dinner and sleep overnight at the hotel.
+30th December
+➤ Wake up early and post breakfast depart for Thimphu a journey of 7 hours.
+➤ Post breakfast we will head towards the Immigration office for permits.
+➤ After permits and immigration process we will leave for Thimphu.
+➤ Embark on a beautiful journey through the beautiful landscapes of this thunder Daragon Land.
+➤ Reach Thimphu by evening & check in to the hotel.
+➤ Dinner & Sleep Overnight at the hotel.
+31st December
+➤ Wake up and post breakfast head for Thimphu local sightseeing.
+➤ Thimphu offers you with lot of shopping options, rich in textile and historical museums.
+➤ Thimphu has the world’s largest Buddha statue, Buddha Dordenma.
+➤ Enjoy the New Year Festivities.
+➤ Reach back hotel by night.
+➤ Dinner and sleep overnight.
+01st January
+➤ Start your day with a beautiful sunrise in the valley.
+➤ Post breakfast depart for Punakha. A long and simple ride from Thimphu to Punakha takes you through DochuLa Pass.
+➤ DochuLa Pass is the second highest pass in Bhutan.
+➤ Punakha Exploration – Suspension Bridge, Punakha Dzong.
+➤ Depart for Paro.
+➤ Reach Paro, check in to the hotel, dinner and sleep overnight.
+02nd January
+➤ Wake up early and have your breakfast.
+➤ Depart for Taktsang Monastery.
+➤ Ride through the beautiful country side and golden paddy fields and see breath taking pine trees and cottages.
+➤ Now start your trek for the monastery.
+➤ Reach Monastery, experience the serenity of this magical place. In the evening enjoy your time in the euphoric and serenic environment of Paro valley and sleep through the night.
+03rd January
+➤ Wake up early and post breakfast depart back and bid adieu to this wonderous land of Thunder Dragon.
+➤ Ride back to Siliguri in India, by night.
+➤ Dinner & overnight sleep at the hotel at Siliguri.
+04th January
+➤ Wake up & post breakfast check out of the hotel & catch your flight back home.
+
+
+NOTE: Numerous factors such as weather, road conditions, the physical ability of participants etc. May cause itinerary change. We reserve the rights to change any schedule in the interest of safety, comfort and general wellbeing.
+
 
 Inclusions:
-✓ 
+✓ Entire travel from Siliguri to Siliguri by shared cab (for shared cab option)
+✓ Bike rent for 6 days (for biking option)
+✓ Fuel for the bike(as per the itinerary only)
+✓ Entry Permit for Bhutan for 6 days including all Inner Line Permits
+✓ Stay for 6 nights – 1 night in a hotel at Phuntsholing, 2 nights in a hotel at Paro, 2 nights in a hotel at Thimphu & 1 night in a hotel at Siliguri on triple sharing basis (NOTE: The cost of double sharing is INR 1000/- per head extra)
+✓ A total of 12 meals – 1 meal Day 1 (Dinner) + 2 meals Day 2 (Breakfast + Dinner) + 2 meals Day 3 (Breakfast + Dinner) + 2 meals Day 4 (Breakfast + Dinner) + 2 meals Day 5 (Breakfast + Dinner) + 2 meals Day 6 (Breakfast + Dinner) + 1 meal Day 7 (Breakfast)
+✓ Mechanical Backup & Riding Gears (Helmet, Knee Guards, Elbow Guards, Gloves)
+✓ Driver Night Charges, Toll Tax, Parking Charges, etc.
+✓ Team Captain throughout the trip
+✓ Guided Trek to Taktsang Monastery
+✓ First Aid Kit
+
 
 Exclusions:
-✗
+✗ GST (5%) is applicable extra.
+✗ Any kind of food or beverage that is not included in the package like alcoholic drinks, mineral water, meals/refreshments/lunches on the highway.
+✗ Any personal expenses like a tip to the drivers, entry to monuments/monasteries, camera/video camera charges, camel safari, river rafting, laundry, telephone bills, tips, etc
+✗ Any cost arising due to natural calamities like landslides, roadblocks etc. (to be borne directly by the customer on the spot)
+✗ Anything not mentioned in the inclusions.
+
 
 Costing:
-*
+Shared Cab	INR 23,999/-
+RE Classic 500 (Solo Rider)	INR 29,999/-
+RE Classic 500 (With Pillion)	INR 24,999/-
+RE Himalayan (Solo Rider)	INR 31,999/-
+RE Himalayan (With Pillion)	INR 26,999/-
 
-To know more about the trip - 
+
+To know more about the trip - https://www.wanderon.in/ny-bhutan
 
 Contact - 
 Call - +918178975830 
@@ -278,6 +351,10 @@ Facebook: www.facebook.com/wander.on
 Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
+
+DEPARTURE LOCATION - Siliguri
+
+Date - date (29th December – 04th January)
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 ##
