@@ -366,9 +366,60 @@ About:
 
 Itinerary:
 ➤
+Day 1: Guwahati Arrival | Umiam Lake | Overnight at Shillong
+➤ Arrive at Lokpriya Gopinath Bordoloi International Airport by morning.
+➤ Post breakfast, depart for Shillong.
+➤ Reach Shillong, check in to the hotel & freshen up.
+➤ Post lunch visit Umiam Lake & then head to Shillong market for some shopping.
+➤ Come back to the hotel by evening.
+➤ Overnight stay at Shillong.
+Day 2: Laithlum Grand Canyon | Shillong to Cherrapunjee
+➤ Wake up lazy morning and enjoy your breakfast with a view.
+➤ Check out and depart for Laithlum Grand Canyon.
+➤ Spend your time awestruck by the amazing beauty.
+➤ Post lunch depart for Cherrapunjee.
+➤ Reach Cherrapunjee & check in to the resort.
+➤ Dinner & sleep overnight.
+Day 3: Double Decker Bridge | Mawsami Caves
+➤ Post breakfast, depart for Tyrna Village.
+➤ Raech Tyrna & start your trek to the astonishing Double Decker Bridge.
+➤ Trek back to Tyrna Village & start your journey to Cherrapunjee.
+➤ On the way visit Mawsami Caves.
+➤ Reach Cherrapunjee.
+➤ Overnight stay at Cherrapunjee.
+Day 4: Nohkalikai Waterfall | Mawlynnong Village | Overnight at Shnongpdeng
+➤ Post breakfast, visit Nohkalikai Waterfall.
+➤ Transfer to Mawlynnong Village.
+➤ Later transfer to Shnongpdeng Village.
+➤ Arrive at Shnongpdeng & check in to the camps.
+➤ Overnight stay at Shnongpdeng.
+Day 5: Water Sports | Krang Suri Waterfall | Overnight at Shillong
+➤ Enjoy your breakfast with a sight of crystal clear water of the river.
+➤ Enjoy various water sports activities.
+➤ Have your lunch and transfer to Shillong.
+➤ On the way visit Krang Suri Waterfall.
+➤ Reach Shillong & explore the local market.
+➤ Overnight stay at Shillong.
+Day 6: Departure
+➤ Enjoy a delicious breakfast.
+➤ Depart for Guwahati Airport.
+➤ Reach your home with a suitcase full of memories.
+NOTE: Numerous factors such as weather, road conditions, the physical ability of participants etc. May cause itinerary change. We reserve the rights to change any schedule in the interest of safety, comfort and general wellbeing.
+Note: All the riders are required to wear a riding jacket(won’t be provided by us) at all the times they are riding the bike, else won’t be allowed to ride the bike.
+
 
 Inclusions:
-✓ 
+✓ Entire travel as per the itinerary(by tempo traveler) for backpacking option.
+✓ Bike rent (Classic 350) for 5 days & fuel as per the itinerary for biking option.
+✓ 5 nights accommodation – 2 Nights in Hotel at Cherrapunjee, 1 Night in Camps at Shnongpdeng & 2 Nights in Hotel at Shillong on triple sharing basis
+✓ 6 meals – Breakfast on Day2, Day3, Day4, Day 5 & Day 6 + Dinner on Day 4
+✓ Entry fees to the sightseeing places mentioned in the itinerary.
+✓ Guided trek to various points.
+✓ Team Captain throughout the trip
+✓ Medical Kit to handle emergency conditions
+✓ Driver night charges, toll & parking charges
+✓ All inner line permits
+
 
 Exclusions:
 ✗
@@ -392,24 +443,140 @@ Facebook Community - http://bit.ly/WanderOnFbGroup
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-##
+##Jaisalmer
 
-WanderOn Weekend Trip 
+WanderOn Weekend Trip Jaisalmer New Year Trip (2 Nights/3 Days)
 
 About:
+The fort of Jaisalmer is a breathtaking sight : a massive sandcastle rising from the sandy plains like a mirage from a bygone era. No place better evokes exotic camel-train trade routes and desert mystery . Ninety-nine bastions encircle the fort’s still-inhabited twisting lanes. Inside are shops swaddled in bright embroideries, a royal palace and numerous businesses looking for your tourist rupee. Despite the commercialism , its hard not to be enchanted by this desert citadel. Beneath the ramparts, particularly to the north, the narrow streets of the old city conceal magnificent havelis, all carved from the same golden-honey sandstone as the fort- hence Jaisalmer’s designation as the Golden City.
+A city that has come back almost from the dead in the past half-century , Jaisalmer may be remote, but it’s certainly not forgotten – indeed it’s one of Rajasthan’s biggest tourist destinations.
+
+Itinerary:
+
+Day 1: Jaisalmer Arrival | Jeep Dune Bashing
+➤ Depart from Delhi by 6:30 pm.
+➤ Travel overnight.
+➤ Take a halt at Pokhran for breakfast.
+➤ Reach Jaisalmer and get checked in to camps.
+➤ Freshen up, relax and have lunch at camps.
+➤ Enjoy a thrilling evening, going for Jeep Dune Bashing.
+➤ Experience the culture of Rajasthan through a folk dance .
+➤ Have your dinner and sleep for the night.
+
+Day 2: Longewala Battle field
+➤ Wake up early and enjoy breakfast in the desert.
+➤ Go for camel Safari in the morning. See why camels are called the ships of desert.
+➤ Get chills in your bone by exploring abandoned village of Kuldhara.
+➤ Visit the border town of Longewala, the spot for Indo-Pak war of 1971.
+➤ Return to Jaisalmer and have your dinner and get a good night’s sleep.
+
+Day 3: Jaisalmer Tour | Departure
+➤ Wake early and recharge with breakfast.
+➤ Check out and go on to a guided tour of Jaisalmer City.
+➤ Enjoy your lunch and get ready for departure.
+➤ Depart for Gurgaon and travel overnight to reach Gurgaon next morning.
+➤ Reach home with lots of amazing memories.
+
+Inclusions:
+✓ Entire travel as per the itinerary.
+✓ Accommodation in Swiss Tents for 1 night & in a hotel for 1 night at Jaisalmer.
+✓ 3 meals – 1 Meal (Day 1) + 1 Meal (Day 2) + 1 Meal (Day 3)
+✓ Jeep Dune Bashing
+✓ Camel Dune Safari
+✓ Team Captain and throughout the trip.
+✓ Driver night charges’, toll tax, parking charges.
+
+Exclusions:
+✗ GST (5%) is applicable extra.
+✗ Anything not mentioned in the inclusions.
+✗ Entry Fees/Camera Fees for entering any monument.
+✗ Tips to helper, cook, guide or any staff.
+✗ Any other costing involved due to any kind of natural calamity, forced circumstances which are out of our control.
+
+Costing:
+Quad Sharing	INR 7999/-
+Triple Sharing	INR 8499/-
+Double Sharing	INR 9499/-
+
+To know more about the trip - https://www.wanderon.in/ny-jaisalmertrip/
+
+Contact - 
+Call - +919870301533 
+WhatApp - http://bit.ly/WanderOnJaisalmerTrip
+Email id - hello@wanderon.in
+
+You can follow us on -
+Website: www.wanderon.in/
+Instagram: www.instagram.com/wander.on
+Facebook: www.facebook.com/wander.on
+Facebook Community - http://bit.ly/WanderOnFbGroup
+
+Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
+----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+##udaipur
+
+WanderOn Weekend Trip udaipur (2 Nights/3 Days)
+
+About:
+Beside shimmering Lake Pichola, with the ochre and purple ridges of the wooded Aravalli Hills stretching away in every direction, Udaipur has a romance of setting unmatched in Rajasthan and arguably in all India. Fantastical palaces, temples, havelis and countless narrow, crooked, timeless streets add the human counterpoint to the city’s natural charms. For the visitor there’s the tranquillity of boat rides on the lake, the bustle and colour of ancient bazaars, a lively arts scene, the quaint old-world feel of its better hotels, endless tempting shops and some lovely countryside to explore on wheels, feet or horseback.
+Udaipur’s tag of ‘the most romantic spot on the continent of India’ was first applied in 1829 by Colonel James Tod, the East India Company’s first political agent in the region. Today the romance is wearing slightly thin as ever-taller hotels compete for the best view and traffic clogs ancient thoroughfares.
 
 
 Itinerary:
-➤
+➤ 
+Day 1: Udaipur
+➤ Depart from Delhi on the evening of the starting date of the trip.
+➤ Travel overnight to reach Udaipur in the morning on Day 1.
+➤ Check in the hotel. Freshen up and go on to explore lake Pichola.
+➤ Experience the serene boat ride in magestic Lake Pichola.
+➤ Visit Sajjangarh Fort. An amazing view of Fateh Sagar Lake and Lake Pichola awaits you as you reach on the top of the hill upon which Sajjangarh Fort is situated.
+➤ Next up is Fateh Sagar Lake. The most beautiful lake in the city of lakes.
+➤ Reach back hotel for dinner and sleep overnight.
+
+Day 2: Udaipur City Palace
+➤ Wake up early and post breakfast visit Udaipur City Palace.
+➤ Get to know the history of Rajasthan, the people and the culture.
+➤ Sunset by Badi lake.
+➤ Dinner by the Amarai Ghat.
+➤ Reach hotel to sleep overnight.
+
+Day 3: Udaipur Local | Departure
+➤ Wake up early and post breakfast check out.
+➤ Guided Tour of Chittorgarh Fort.
+➤ Explore the local market of Udaipur. The handicrafts and Rajasthan specific artifacts are good souvenirs.
+➤ Go for a final shopping spree before departing for Delhi.
+➤ Reach back Delhi next morning with bag full of amazing memories.
 
 Inclusions:
 ✓ 
+✓ Entire travel as per the itinerary.
+✓ Accommodation for 2 nights in a hotel at Udaipur.
+✓ 3 meals will be provided throughout the trip. 3 Breakfasts(from Day 1 to Day 3).
+✓ Boating on Lake Pichola.
+✓ Team captain throughout the trip.
+✓ Driver night charges’, toll tax, parking charges.
 
 Exclusions:
-✗
+✗ 
+✗ GST (5%) is applicable extra.
+✗ Tips to guide, helper, cook or any staff member.
+✗ Any other costing involved due to any kind of natural calamity, forced circumstances which are out of our control.
+✗ Anything not mentioned in the inclusions.
+
+Date:
+20th December – 24th December
+27th December – 31st January
+29th December – 02nd January
+
+Departure point:
+Iffco Chowk Metro Station (Gurugram)
+
 
 Costing:
-*
+Quad Sharing	INR 7999/-
+Triple Sharing	INR 8499/-
+Double Sharing	INR 8999/-
 
 To know more about the trip - 
 
@@ -427,24 +594,66 @@ Facebook Community - http://bit.ly/WanderOnFbGroup
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-##
+##TirthanValley 
 
-WanderOn Weekend Trip 
+WanderOn Weekend Trip Tirthan Valley (2 Nights/3 Days)
 
 About:
-
+Called ‘Himachal’s Best Kept Secret’, enclosed by the Great Himalayan National Park with flowing rivers, lush green valleys and lakes, Tirthan Valley is one of the most beautiful places in Himachal. It draws its name from Tirthan River, which originates from the glaciers of Himalayas. This is an area of exceptional beauty and mountain scenery, unspoiled villages and nature, great walks and inviting guesthouses. It’s the gateway to the spectacular, World Heritage–listed Great Himalayan National Park, 754 pristine square kilometres of steep-sided river valleys and mountains reaching right up to the 6000m-plus peaks of the Great Himalayan Range. Jalori Pass, Chaini Fort, Shringa Rishi Temple, Serolsar Lake, 360° View Point are some of the places to look out for while exploring the Tirthan Valley.
 
 Itinerary:
-➤
+➤ 
+Day 1: Gushaini Arrival | Trek to Choie Waterfall
+➤ Start from Delhi by 06:00 p.m.
+➤ Pit stop for dinner at any decent roadside hotel.
+➤ Reach Aut by morning.
+➤ Local transfer from Aut to Gushaini.
+➤ Freshen-up and relax at the hotel.
+➤ Trek to Choie Waterfall.
+➤ Come back to the hotel by evening.
+➤ Bonfire.
+➤ Dinner and overnight at the hotel.
+
+Day 2: Jalori Pass | Trek to Serolsar Lake
+➤ Wake up & post breakfast go for SEROLSAR LAKE TREK
+➤ Drive to Jalori Pass (till snow point), trek further and enjoy a stunning 360° view of the Great Himalayas.
+➤ Witness awe-inspiring beauty.
+➤ Trek further to Serolsar Lake
+➤ Come back to the hotel and enjoy Bonfire and music.
+➤ Dinner and overnight at the hotel.
+
+Day 3: River Rafting | Departure
+➤ Wake up early morning and witness a beautiful sunrise.
+➤ Post breakfast check out from the hotel.
+➤ Depart for River Rafting.
+➤ Enjoy the adrenalin rush amongst the rapids of Beas River.
+➤ Depart for Delhi
+➤ Reach Delhi next day morning by 08:00 AM (tentatively)
 
 Inclusions:
-✓ 
+✓ Entire travel as per the itinerary.
+✓ A total of 5 meals – 2 meals on Day 1 + 2 meals on Day 2 + 1 meal on Day 3.
+✓ Accommodation at Gushaini in resort/hotel for 2 nights.
+✓ White Water River Rafting (8 km, 1 hr)
+✓ Guided Trek to Serolsar Lake.
+✓ Team Captain throughout the trip.
+✓ Driver night charges, toll tax, parking charges.
 
 Exclusions:
-✗
+✗ GST (5%) is applicable extra.
+✗ Anything not mentioned in the inclusions.
+✗ Tips to helper, cook, guide or any staff.
+✗ Any other costing involved due to any kind of natural calamity, forced circumstances which are out of our control.
+
+Date
+20th December – 24th December
+27th December – 31st December
+29th December – 02nd January
 
 Costing:
-*
+Quad Sharing	INR 7499/-
+Triple Sharing	INR 7999/-
+Double Sharing	INR 8499/-
 
 To know more about the trip - 
 
@@ -460,28 +669,65 @@ Facebook: www.facebook.com/wander.on
 Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
+
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-##
+##McleodganjTriund
 
-WanderOn Weekend Trip 
+WanderOn Weekend Trip Mcleodganj Triund
 
 About:
-
+Triund is the crown jewel of Dharamshala, situated in the laps of Dhauladhar mountains, it has the perfect view of the Dhauladhar mountains on one side and Kangra valley on the other. Triund is a very popular trekking spot. Triund attracts a lot of tourists every year from India and all over the world. The Triund trek can be described as a tranquil trek which can be easily accomplished by almost all age groups. Triund has an unambiguous byway which goes through a beautiful mixed forest of oak, deodar, and rhododendron. Trek is fairly easy for the first five kilometers but the last one kilometer may require a bit of toil, the last one kilometer is popularly known as the “22 curves” as it has 22 tiring curves before you finally reach Triund. Along the way, there are many small chai shops where one can refresh during the hike. The traipse is worth it as the panorama when you reach Triund is awe-inspiring and exhilarating.
 
 Itinerary:
-➤
+Day 1: McLeod Ganj Arrival & Local Sightseeing
+➤ Start from Delhi by 06:30 PM on Day 0.
+➤ Reach McLeod Ganj by morning.
+➤ Check in at our hotel and after having breakfast and some leisure, head out for the local sightseeing of Mcleod Ganj.
+➤ Visit the very famous Namgyal Monastery, Bhagsu waterfall, and Bhagsunath temple.
+➤ Spend your evening at the local market of Mcleod Ganj, chilling around in the local cafes, trying different Tibetan cuisine.
+➤ Come back to the hotel by evening, dinner and sleep overnight.
+
+Day 2: Day Hike to Triund | Camping at McLeod Ganj
+➤ Wake up early morning and after having breakfast head for Triund Trek.
+➤ Take a pit stop at Magic View Cafe on your way through Triund and chill around for half an hour.
+➤ Reach Triund by noon and enjoy the beautiful views of Dhauladhar Ranges.
+➤ Come back to McLeod Ganj by evening and check in to the campsite.
+➤ Dinner and sleep overnight.
+
+Day 3: Departure
+➤ Wake up with a beautiful and blissful sunrise and enjoy your morning breakfast.
+➤ Lunch, Leisure & McLeod Ganjs self-exploration (& shopping)
+➤ Head back to Delhi by evening with lots of amazing trip memories.
+➤ Reach Delhi next day morning by 08:00 AM(tentatively)
 
 Inclusions:
-✓ 
+✓ Entire travel as per the itinerary.
+✓ Accommodation for 1 night in hotel at McLeod Ganj and 1 night camping at McLeod Ganj.
+✓ 4 meals will be provided throughout the trip. 3 Breakfasts & 1 Dinner.
+✓ Team captain throughout the trip.
+✓ Driver night charges’, toll tax, parking charges.
 
 Exclusions:
-✗
+✗ GST (5%) is applicable extra.
+✗ Any other Food and Beverage charge that is not included in the package.
+✗ Any other costing involved due to any kind of natural calamity, forced circumstances which are out of our control.
+✗ Anything not mentioned in the inclusions.
+
+Departure point:
+Iffco Chowk Metro Station (Gurugram)
+
+Date
+20th December – 24th December
+27th December – 31st January
+29th December – 02nd January
 
 Costing:
-*
+Quad Sharing	INR 6499/-
+Triple Sharing	INR 6799/-
+Double Sharing	INR 6999/-
 
-To know more about the trip - 
+To know more about the trip - https://www.wanderon.in/ny-mcleodganjtriund
 
 Contact - 
 Call - +918178975830 
@@ -495,64 +741,64 @@ Facebook: www.facebook.com/wander.on
 Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
-
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-##
+##auli
 
-WanderOn Weekend Trip 
-
-About:
-
-
-Itinerary:
-➤
-
-Inclusions:
-✓ 
-
-Exclusions:
-✗
-
-Costing:
-*
-
-To know more about the trip - 
-
-Contact - 
-Call - +918178975830 
-WhatApp - http://bit.ly/WanderOnWeekendGetaways
-Email id - hello@wanderon.in
-
-You can follow us on -
-Website: www.wanderon.in/
-Instagram: www.instagram.com/wander.on
-Facebook: www.facebook.com/wander.on
-Facebook Community - http://bit.ly/WanderOnFbGroup
-
-Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-
-##
-
-WanderOn Weekend Trip 
+WanderOn Weekend Trip auli (2 Nights/3 Days)
 
 About:
-
+Do you know that the mighty Garhwal Himalayas are hiding an international ski resort that is too surreal to believe? Rising above the holy town of Joshimath, Auli is a gem of a place for all those who love snow and winter sports! Located at a distance of approx 500 km, a trip from Delhi to Auli can easily be covered over a weekend! While you might get to see snow laid fields in many other places, what makes Auli different is that it is a very prominent Ski Destination in India! Owing to this, the best time to visit Auli is between December to March. The distance between Joshimath to Auli is 14kms and one can reach there by road. However, what’s more worthy is the gondola cable car ride that takes you above the beautiful alpine forests to a thick, snow-clad meadow of Auli Resort!
 
 Itinerary:
-➤
+Day 1: Joshimath Arrival & Acclimatization
+➤ Start from Delhi by 09:00 p.m. on Day 0.
+➤ Pit stop at Devprayag – Witness the beautiful Sangam of Bhagirathi & Alaknanda.
+➤ Breakfast stop at Srinagar.
+➤ Reach Joshimath by evening & check in to the hotel.
+➤ Freshen Up & relax.
+➤ Bonfire, dinner & sleep overnight.
+
+Day 2: Auli Skiing & Gorson Bugyal Trek
+➤ Wake up early & witness the beautiful sunrise.
+➤ Have breakfast.
+➤ Start your journey to Auli.
+➤ You can either go by ropeway or road.
+➤ Enjoy the panoramic ice covered view & enjoy skiing.
+➤ Trek to Gorson Bugyal.
+➤ Come back to the hotel by evening, dinner & sleep overnight.
+
+Day 3: Departure
+➤ Wake up lazy morning and after having breakfast explore more of the local market of Joshimath for some final shopping.
+➤ Head back to Delhi by 03:00 PM with some amazing trip memories
+➤ Reach Delhi next day morning by 07:00 AM(tentatively)
 
 Inclusions:
-✓ 
+✓ Entire travel as per the itinerary.
+✓ Accommodation for 2 nights in a hotel at Joshimath.
+✓ 4 meals – 1 meal on Day 1 + 2 meals on Day 2 + 1 meal on Day 3
+✓ Team captain throughout the trip.
+✓ Driver night charges’, toll tax, parking charges.
 
 Exclusions:
-✗
+✗ GST (5%) is applicable extra.
+✗ Tips to guide, helper, cook or any staff member.
+✗ Ropeway & Skiing Equipment charges.
+✗ Anything not mentioned in the inclusions.
+
+Departure point
+Akshardham Metro Station (New Delhi)
+
+Date
+20th December – 24th December
+29th December – 02nd January
 
 Costing:
-*
+Quad Sharing	INR 7499/-
+Triple Sharing	INR 7999/-
+Double Sharing	INR 8999/-
 
-To know more about the trip - 
+To know more about the trip - https://www.wanderon.in/ny-auli/
 
 Contact - 
 Call - +918178975830 
