@@ -1,12 +1,27 @@
 ##TripsDetails
 
+##Delhi-Weekend-birbilling
+##Delhi-Weekend-chopta
+##Delhi-Weekend-prasharlake
+##Delhi-Weekend-Kasolkheergana
+##Delhi-Weekend-mcleodganjtriund
+##Delhi-Weekend-tirthanvalley
+##Delhi-Weekend-jaisalmertrip
+##Delhi-Weekend-udaipur
+##Delhi-Weekend-auli
+##Delhi-Weekend-mcleodganj-birbilling
+##bangalore-Weekend-coorg
+##bangalore-Weekend-wayanad
+##bangalore-Weekend-hampi
+##bangalore-Weekend-gokarna
 
-##birbilling
 ##Meghalaya Road Trip
 ##sikkim-roadtrip
 ##Bhutan Road Trip
 
-##Bir Billing
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+##Delhi-Weekend-birbilling
 WanderOn Weekend Trip with birbilling (1 Night/2 Days)
 
 **About:**
@@ -45,6 +60,12 @@ Exclusions:
 ✗ Glider’s tip or charges for Video/photos while paragliding.
 ✗ Any other costing involved due to any kind of natural calamity, forced circumstances which are out of our control.
 
+Date
+
+
+Departure point
+
+
 Costing:
 * INR 6999/-
 
@@ -63,7 +84,7 @@ Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
 
------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 ##Meghalaya Road Trip
 
 WanderOn Weekend Trip Meghalaya Road Trip(5 Nights/6 Days)
@@ -137,9 +158,15 @@ Exclusions:
 
 Note: INR 10,000/- needs to be submitted as security for the bike before the start of the trip. Any damage to the bike, except engine damage, has to be borne directly by the client.
 
+Date
+
+
+Departure point
+
+
 Costing:
-* Tempo traveler	INR 17,999/-
-* Bike				INR 21,999/-
+Tempo traveler	INR 17,999/-
+Bike				INR 21,999/-
 
 To know more about the trip - https://www.wanderon.in/meghalayaroadtrip/
 
@@ -156,8 +183,7 @@ Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
 
-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 ##sikkim-roadtrip
 
 WanderOn Weekend Trip sikkim-roadtrip (6 Nights/7 Days)
@@ -226,6 +252,12 @@ Any cost arising due to natural calamities like landslides, roadblocks etc. (to 
 Any damage to the bike except engine damage has to be borne by the client
 Anything not mentioned in the inclusion.
 
+Date
+
+
+Departure point
+
+
 Costing:
 - Shared Cab	INR 23,999/-
 - RE Classic 500 (Solo Rider)	INR 35,999/-
@@ -248,8 +280,7 @@ Facebook: www.facebook.com/wander.on
 Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 ##Bhutan Road Trip
 
 WanderOn Weekend Trip Bhutan (6 Nights/7 Days)
@@ -328,6 +359,11 @@ Exclusions:
 ✗ Any cost arising due to natural calamities like landslides, roadblocks etc. (to be borne directly by the customer on the spot)
 ✗ Anything not mentioned in the inclusions.
 
+Date
+
+
+Departure point
+
 
 Costing:
 Shared Cab	INR 23,999/-
@@ -355,9 +391,7 @@ Please note that if you find the above number not reachable or switched-off, the
 DEPARTURE LOCATION - Siliguri
 
 Date - date (29th December – 04th January)
-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-
-##
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------##
 
 WanderOn Weekend Trip 
 
@@ -365,7 +399,6 @@ About:
 
 
 Itinerary:
-➤
 Day 1: Guwahati Arrival | Umiam Lake | Overnight at Shillong
 ➤ Arrive at Lokpriya Gopinath Bordoloi International Airport by morning.
 ➤ Post breakfast, depart for Shillong.
@@ -373,6 +406,7 @@ Day 1: Guwahati Arrival | Umiam Lake | Overnight at Shillong
 ➤ Post lunch visit Umiam Lake & then head to Shillong market for some shopping.
 ➤ Come back to the hotel by evening.
 ➤ Overnight stay at Shillong.
+
 Day 2: Laithlum Grand Canyon | Shillong to Cherrapunjee
 ➤ Wake up lazy morning and enjoy your breakfast with a view.
 ➤ Check out and depart for Laithlum Grand Canyon.
@@ -380,6 +414,7 @@ Day 2: Laithlum Grand Canyon | Shillong to Cherrapunjee
 ➤ Post lunch depart for Cherrapunjee.
 ➤ Reach Cherrapunjee & check in to the resort.
 ➤ Dinner & sleep overnight.
+
 Day 3: Double Decker Bridge | Mawsami Caves
 ➤ Post breakfast, depart for Tyrna Village.
 ➤ Raech Tyrna & start your trek to the astonishing Double Decker Bridge.
@@ -387,12 +422,14 @@ Day 3: Double Decker Bridge | Mawsami Caves
 ➤ On the way visit Mawsami Caves.
 ➤ Reach Cherrapunjee.
 ➤ Overnight stay at Cherrapunjee.
+
 Day 4: Nohkalikai Waterfall | Mawlynnong Village | Overnight at Shnongpdeng
 ➤ Post breakfast, visit Nohkalikai Waterfall.
 ➤ Transfer to Mawlynnong Village.
 ➤ Later transfer to Shnongpdeng Village.
 ➤ Arrive at Shnongpdeng & check in to the camps.
 ➤ Overnight stay at Shnongpdeng.
+
 Day 5: Water Sports | Krang Suri Waterfall | Overnight at Shillong
 ➤ Enjoy your breakfast with a sight of crystal clear water of the river.
 ➤ Enjoy various water sports activities.
@@ -400,6 +437,7 @@ Day 5: Water Sports | Krang Suri Waterfall | Overnight at Shillong
 ➤ On the way visit Krang Suri Waterfall.
 ➤ Reach Shillong & explore the local market.
 ➤ Overnight stay at Shillong.
+
 Day 6: Departure
 ➤ Enjoy a delicious breakfast.
 ➤ Depart for Guwahati Airport.
@@ -424,8 +462,14 @@ Inclusions:
 Exclusions:
 ✗
 
+Date
+
+
+Departure point
+
+
 Costing:
-*
+
 
 To know more about the trip - 
 
@@ -441,9 +485,8 @@ Facebook: www.facebook.com/wander.on
 Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-
-##Jaisalmer
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+####Delhi-Weekend-jaisalmertrip
 
 WanderOn Weekend Trip Jaisalmer New Year Trip (2 Nights/3 Days)
 
@@ -512,9 +555,8 @@ Facebook: www.facebook.com/wander.on
 Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-
-##udaipur
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+##Delhi-Weekend-udaipur
 
 WanderOn Weekend Trip udaipur (2 Nights/3 Days)
 
@@ -592,9 +634,8 @@ Facebook: www.facebook.com/wander.on
 Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-
-##TirthanValley 
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+##Delhi-Weekend-tirthanvalley
 
 WanderOn Weekend Trip Tirthan Valley (2 Nights/3 Days)
 
@@ -670,9 +711,8 @@ Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
 
-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-
-##McleodganjTriund
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+##Delhi-Weekend-mcleodganjtriund
 
 WanderOn Weekend Trip Mcleodganj Triund
 
@@ -741,9 +781,8 @@ Facebook: www.facebook.com/wander.on
 Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-
-##auli
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+####Delhi-Weekend-auli
 
 WanderOn Weekend Trip auli (2 Nights/3 Days)
 
@@ -812,28 +851,58 @@ Facebook: www.facebook.com/wander.on
 Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+##Delhi-Weekend-prasharlakeprasharlake
 
-##
-
-WanderOn Weekend Trip 
+WanderOn Weekend Trip prasharlake (1 Night/2 Days)
 
 About:
-
+Surrounded by the Dhauladhar ranges in Kullu Valley is a blue-water lake called Prashar. Prashar Lake is a well-kept secret in the Mandi district of Himachal Pradesh. The trek follows a charming trail through a forest and several rivulets. Meanwhile, one can enjoy the local culture as the trail goes through villages as well. The trek offers a 180 degree view of the Dhauladhar, Pir Panjal and Kinnaur mountain ranges. For those interested in architecture, the local temple of Prashar Rishi next to the lake, with its riveting Himachali architecture, blends perfectly with the landscape.The temple was built in the thirteenth century and legend has it was built by a baby from a single tree. The lake has a floating island in it and it is said to be unclear how deep it is, with a diver not being able to determine its depth.
 
 Itinerary:
-➤
+➤ 
+Day 1: Prashar Lake Trek | Camping
+➤ Start from Delhi on Day 0 evening (08:30 PM)
+➤ Reach Mandi by morning.
+➤ Breakfast + Transfer to Baggi village on Shared Cabs
+➤ Trek to Parashar Lake + Packed Lunch
+➤ Photography and sunset at Parashar Lake
+➤ Snacks + Dinner
+➤ Camping under the Stars at Parashar Lake
+
+Day 2: Trek Down | Departure
+➤ Experience Sunrise at Parashar Lake + 360° panoramic view of the mighty Himalayas
+➤ Breakfast + Trek back to Baggi Village
+➤ Transfer to Mandi
+➤ Lunch & Freshen Up
+➤ Depart for Delhi by evening to reach next day morning.
 
 Inclusions:
-✓ 
+✓ Entire travel as per the itinerary. (Mode of Transport – Tempo Traveler)
+✓ 3 meals will be provided throughout the trip.
+✓ Accommodation in camps on double/triple sharing basis along with all the camping gears at Prashar Lake.
+✓ Guided Trek to Prashar Lake.
+✓ Team captain throughout the trip.
+✓ Driver night charges’, toll tax, parking charges.
 
 Exclusions:
-✗
+✗ GST (5%) is applicable extra.
+✗ Anything not mentioned in the inclusions.
+✗ Tips to helper, cook, guide or any staff.
+✗ Any other costing involved due to any kind of natural calamity, forced circumstances which are out of our control.
+
+Departure point
+Vidhan Sabha Metro Station (New Delhi)
+
+Date
+20th december – 23rd December
+27th December – 30th December
+30th December – 02nd January
 
 Costing:
-*
+Double INR 5999/-
 
-To know more about the trip - 
+To know more about the trip - https://www.wanderon.in/ny-prasharlake/
 
 Contact - 
 Call - +918178975830 
@@ -987,28 +1056,157 @@ Facebook: www.facebook.com/wander.on
 Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-##
+##coorg
 
-WanderOn Weekend Trip 
+WanderOn Weekend Trip coorg (1 Night/2 Days)
 
 About:
-
+Nestled amid evergreen hills that line the southernmost edge of Karnataka is the luscious Kodagu (Coorg) region, gifted with emerald landscapes and hectares of plantations. A major centre for coffee and spice production, this rural expanse is also home to the Kodava people, who are divided into 1000 clans. The uneven terrain and cool climate make it a fantastic area for trekking, birdwatching or lazily ambling down little-trodden paths winding around carpeted hills. All in all, Kodagu is rejuvenation guaranteed. Kodagu was a state in its own right until 1956, when it merged with Karnataka.
 
 Itinerary:
-➤
+➤ 
+Day 0
+➤ Start the drive to Coorg at 10.00 PM from Bangalore.
+➤ Meet and greet with the co-travellers. The journey will take 8-9 hours.
+
+Day 1
+➤ Reach to Coorg by morning and head to the Campsite.
+➤ Get checked in and freshen up.
+➤ After breakfast, gear up for one of the most exciting treks of the western Ghats.
+➤ Head to the trek starting point at Kakkabe village and begin the trek to reach the Tadiandamol Peak.
+➤ Hike through the forests for 7 Kms crossing several water streams and waterfalls, mesmerised by the panoramic views of the forest cover at the view points.
+➤ Finally, reach to the Peak and enjoy the 360 degree view and feel the peace and grandeur of the views.
+➤ Start the descent down to the campsite and spend a fun evening at the bonfire with your new found friends.
+➤ Dinner and overnight at the campsite.
+
+Day 2
+➤ Wake up to a relaxing morning in the lap of nature.
+➤ Indulge in some fun activities at the campsite.
+➤ After breakfast head out to visit the Irupu Falls
+➤ Make a visit to the Namdroling Monastery, one of the largest centres of Buddhism dedicated to the Vajrayana Tibetan Buddhism.
+➤ After lunch, board the bus and head back to Bangalore with some amazing trip memories. Reach by late night.
 
 Inclusions:
-✓ 
+✓ Complete transfers from Bangalore in coach vehicle.
+✓ A total of 4 meals (2 BREAKFAST + 1 Lunch (Packed Lunch) + 1 dinner)
+✓ Guided trek to Tadaindamol Peak
+✓ Accommodation in camps on triple sharing basis. For couples double sharing can be arranged on special request.
+✓ Team captain from WanderOn’s team through out the journey.
+✓ Driver charges and taxes.
 
 Exclusions:
-✗
+✗ Any item other than mentioned in itinerary.
+✗ Meals other than mentioned itinerary
+✗ Item of personal nature like liquor or shopping.
+✗ Cost arises due to unseen circumstances like weather condition, road closed or Medical emergencies.
+✗ Sighseeing and activities fees (if any)
+
+Date
+08th November – 11th November
+15th November – 18th November
+22nd November – 25th November
+29th November – 02nd December
+06th December – 09th December
+13th December – 16th December
+20th December – 23rd December
+30th December – 02nd January
 
 Costing:
-*
+INR 4,199/- per person
 
-To know more about the trip - 
+To know more about the trip - https://www.wanderon.in/coorg/
+
+Contact - 
+Call - +918178975830 
+WhatApp - http://bit.ly/WanderOnWeekendGetaways
+Email id - hello@wanderon.in
+
+You can follow us on -
+Website: www.wanderon.in/
+Instagram: www.instagram.com/wander.on
+Facebook: www.facebook.com/wander.on
+Facebook Community - http://bit.ly/WanderOnFbGroup
+
+Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+##wayanad
+
+WanderOn Weekend Trip wayanad(1 Night/2 Days)
+
+About:
+A lush green heaven nestled in the western ghats, Wayanad is a pristine destination that defines the mystical mountains of South India. The paradise of Wayanad is nothing like you’ve seen before. From diverse wildlife to thick evergreen forest covering the region; Wayanad speaks for the glory of one of the South India’s ultimate secrets. With a hint of modernity, Wayanad is situated at the perfect spot making it accessible from cities like Bangalore and Kozhikode. With hills in the background, the place is blessed with some of the most gleaming river island and a dam that is the perfect location for sunsets. Like a movie setting, Wayanad’s roads takes you through the curves and edges of an adventure that does not exist elsewhere. Chirping birds and the rain forest setting, jeep rides and hikes to waterfalls, beautiful evening and mesmerising views; Wayanad will not disappoint you a bit!
+
+So, what are you waiting for!? Join us on our adventure to Wayanad as we take you across south India’s ultimate haven.
+
+Itinerary:
+Day 0
+➤ We start from Bangalore by 10 P.M.
+➤ Drive through the mystical forest of Karnataka and reach the beautiful forest town, Wayanad.
+➤ The 280 km drive from Bangalore to Wayanad takes about 7-8 hours to complete.
+
+Day 1
+➤ A new day starts with a new town welcoming us.
+➤ We reach Wayanad early morning and rest for a while at a guesthouse.
+➤ Post breakfast we start our day with the forest jeep ride to our campsite at a secret location with a private waterfall.
+➤ This amazing jeep ride will take you through beautiful tea plantation and roads less traveled upon!
+➤ In between you will encounter several off-road patches and waterfall before we reach our secret campsite.
+➤ After settling in the camps, we take a short break and post lunch we start hiking towards the waterfall.
+➤ This is one of the best spots in Wayanad for nature lovers and photographers to click some Instagram worthy photos!
+➤ We return to the campsite by evening where we bond over music and bonfire followed by a delicious meal.
+
+Day 2
+➤ We wake up to a beautiful morning in the laps of the nature & do a small hike towards the sunrise point.
+➤ Post sunrise, we head back to the campsite for breakfast.
+➤ Post breakfast, we start our day by moving towards Knathanpara Waterfalls.
+➤ Then we head to Banasura dam.
+➤ It is considered to be the largest earth dam in India and second largest in Asia. From the dam, one can spot the several islands formed on the Dam’s reservoir.
+➤ With the hills in the background, the reservoir gleams during the sunset.
+➤ We witness a beautiful sunset being painted over the sky; with golden tones making the evening serene and peaceful.
+➤ We bid goodbye to Wayanad after leaving from the dam.
+
+Day 3
+➤ The next day, we reach Bangalore with amazing memories and tales.
+➤ You will return home with amazing friendships, experiences and photographs!
+
+Inclusions:
+✓ Complete transfers from Bangalore in coach vehicle.
+✓ Off ride Jeep ride to Campsite
+✓ A total of 4 meals (2 BREAKFAST + 1 Lunch (at campsite) + 1 dinner)
+✓ Guided trek to waterfall
+✓ Freshen-up charges at guest house
+✓ Accommodation in camps on triple sharing basis. For couples double sharing can be arranged on special request.
+✓ Team captain from WanderOn’s team through out the journey.
+✓ Driver charges and taxes.
+
+Exclusions:
+✗ Any item other than mentioned in itinerary.
+✗ Meals other than mentioned itinerary
+✗ Item of personal nature like liquor or shopping.
+✗ Cost arises due to unseen circumstances like weather condition, road closed or Medical emergencies.
+✗ Sighseeing and activities fees (if any)
+
+
+Departure point
+
+
+
+Date
+08th November – 11th November
+15th November – 18th November
+22nd November – 25th November
+29th November – 02nd December
+06th December – 09th December
+13th December – 16th December
+20th December – 23rd December
+30th December – 02nd January
+
+Costing:
+INR 4,799/- per person
+
+To know more about the trip - https://www.wanderon.in/wayanad/
 
 Contact - 
 Call - +918178975830 
@@ -1024,26 +1222,77 @@ Facebook Community - http://bit.ly/WanderOnFbGroup
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-##
+##Hampi
 
-WanderOn Weekend Trip 
+WanderOn Weekend Trip hampi (1 Night/2 Days)
 
 About:
+Hampi – a place as unique as its name, is a bag full of rich Indian history. Temples, significant architectural structures, lakes and rivers; you name it and Hampi has it. A region known for its rocks and ruins; Hampi was the capital of the very famous Vijaynagara empire of south India. A brown landscape with rusty terrain- Hampi is the perfect weekend getaway from Bangalore. It is a town known for its temples, a flea market full of hippie styled products and its sunsets! A UNSECO heritage site, Hampi was known for the diamonds that were sold on its streets. Million boulders, lush palms and the Tungabhadra river add different layers to its undulating beauty. A story at every corner, Hampi is a historical site with present day features that add a cherry on top of the cake. So, for all the history lovers out there: how long are you going to wait to tick Hampi off your bucket list? With the Wander on Hampi travel package, you can explore the Hampi tourist places with our 2-day itinerary.
 
 
 Itinerary:
-➤
+➤ 
+Day 0: Overnight journey from Bangalore to Hampi
+➤ We start our trip by driving from Bangalore at around 9:00 P.M.
+➤ The 342 km journey takes about 7-8 hours to complete.
+
+Day 1: Reach Hampi - Check in to the campsite - Hampi Exploration - Anegundi Fort - UNESCO World Heritage Site
+➤ New day, new place! We reach Hampi in the morning and check into our campsite.
+➤ We rest for a while, have breakfast and leave for today’s explorations.
+➤ We start our day by visiting the Anegundi fort. Dotted with a Durga temple and tombs on the entrance, Anegundi is a place where the elephants of the Vijaynagara empire used to take bath.
+➤ From the fort, we head towards the river to experience floating above the waters on a circular shaped boat.
+➤ The UNESCO world heritage site of Hampi is famous for its coracle rides i.e. walnut shaped boats on the waters of the River Tungabhadra.
+➤ We stop for lunch at a local café and head to the sunset point during the evening.
+➤ After witnessing the sky getting painted with innumerable hues, we head back to the campsite.
+➤ Enjoy dinner by the bonfire before sleeping in.
+
+Day 2: Hampi Heritage Walk - Virupaksha Temple - Hampi Bazaar - Vijaya Vittala Temple - Lotus Mahal - Depart for Bangalore
+➤ On the second day, we explore places that are known to be the epitome of Hampi’s historical legacies.
+➤ Post breakfast, we check out of our campsite and head out to the prestigious Hampi Heritage Walk.
+➤ Our first stop on the walk is the Virupaksha temple. An architecturally renowned temple, Virupaksha temple is dedicated to Lord Shiva. It started off as a little shrine and later developed into a full-blown temple, becoming an important pilgrim site for many.
+➤ We take a break and have lunch at a local café before visiting the flea market.
+➤ The flea market, also known as the Hampi bazaar, is a set-up of historic market stalls full of ornaments and fabrics.
+➤ After shopping, we head to the very famous Vijaya Vittala temple which is known for its Stone Chariot. The temple is also known for its musical pillars and indomitable stone architecture. Built in the 15th century, it is dedicated to an incarnation of Lord Vishnu. Both the temples are built in Dravidian style of architecture.
+➤ To end the chapter of Hampi, we head towards the Lotus Mahal. A look alike structure of a lotus flower, Lotus Mahal is one of the few structures left undamaged by the invaders. It is a part of the Zenana enclosure, where the royal family resided.
+➤ We later catch a bus back to Bangalore and reach home with amazing memories and stories; entrenched with the natural beauty of Hampi and the enriching history of an empire.
+
+Day 3: Reach back home with amazing trip memories
+➤ The next morning we reach Bangalore via the same scenic route.
+➤ You reach home with a backpack full of amazing memories, stories and experiences. You will have energetic tales to speak about and mind-blowing views to brag about!
 
 Inclusions:
-✓ 
+✓ Entire travel as per the itinerary by Tempo Traveller/Mini Bus
+✓ Stay at a campsite in Hampi.
+✓ Bouldering activity under the guidance of a professional.
+✓ A total of 3 meals— 2 breakfast + 1 dinner
+✓ Trip captain throughout the trip
+✓ Entry tickets for Heritage sites are included
+✓ Local transportation i.e. mopeds within Hampi on Day 1.
 
 Exclusions:
-✗
+✗ GST (5%) is applicable extra.
+✗ Meals other than mentioned in itinerary.
+✗ Any item of personal nature like shopping.
+✗ Cost arises due to uncontrollable circumstances like bad weather conditions, landslides, or some public protest.
+✗ Water sports or any activity other than mentioned in Itinerary.
+✗ Things other than mentioned in inclusions.
+
+
+Date 
+08th November – 11th November
+15th November – 18th November
+22nd November – 25th November
+29th November – 02nd December
+06th December – 09th December
+13th December – 16th December
+20th December – 23rd December
+30th December – 02nd January
 
 Costing:
-*
+INR 3,999/- per person
 
-To know more about the trip - 
+
+To know more about the trip - https://www.wanderon.in/hampi/
 
 Contact - 
 Call - +918178975830 
@@ -1059,37 +1308,69 @@ Facebook Community - http://bit.ly/WanderOnFbGroup
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-##
-
-WanderOn Weekend Trip 
-
-About:
 
 
-Itinerary:
-➤
 
-Inclusions:
-✓ 
+Inclusions
+✓ Entire travel as per the itinerary.
+✓ 4 meals – 2 meals Day 1 (L+D) + 1 meal Day 2 (B) + 1 meal Day 3 (B).
+✓ Accommodation for 1 night in hotel at McLeod Ganj and 1 night camping on double/triple sharing basis along with all the camping gears at Bir.
+✓ Paragliding cost from Billing to Bir.
+✓ Team captain throughout the trip.
+✓ Driver night charges, toll tax, parking charges.
 
-Exclusions:
-✗
 
-Costing:
-*
 
-To know more about the trip - 
 
-Contact - 
-Call - +918178975830 
-WhatApp - http://bit.ly/WanderOnWeekendGetaways
-Email id - hello@wanderon.in
+GST (5%) is applicable extra.
+Glider’s tip or charges for Video/photos while paragliding.
+Any other costing involved due to any kind of natural calamity, forced circumstances which are out of our control.
+Any other cost not mentioned in the inclusions column.
 
-You can follow us on -
-Website: www.wanderon.in/
-Instagram: www.instagram.com/wander.on
-Facebook: www.facebook.com/wander.on
-Facebook Community - http://bit.ly/WanderOnFbGroup
 
-Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+Shared Cab	INR 23,999/-
+RE Classic 500 (Solo Rider)	INR 35,999/-
+RE Classic 500 (With Pillion)	INR 29,999/-
+RE Himalayan (Solo Rider)	INR 37,499/-
+RE Himalayan (With Pillion)	INR 31,499/-
+Self Bike	INR 24,499/-
+
+
+
+
+
+-------------------------------------------
+
+
+
+HighApe
+Use image of 2:1 resolution -
+landscape. Size < 1 mb.
+without price
+without number
+
+insider
+dimension - 1316 x 720 and file size lower than 180kb.
+All the logos go on the left corner stacked one below the another. 
+Do not add venue, date, timing of the event on the creative.
+without date and price
+without number
+
+bookmyshow
+ai raw file
+without date and price
+without number
+
+meetup
+1200 x 675 pixels
+without date and price
+without number
+
+Fb
+cover photo - 
+1920 x 1080 pixels with a 16:9 ratio
+without date and price
+
+
+
+
