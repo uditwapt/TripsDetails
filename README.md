@@ -10,10 +10,14 @@
 ##Delhi-Weekend-udaipur
 ##Delhi-Weekend-auli
 ##Delhi-Weekend-mcleodganj-birbilling
+##Delhi-4n5d-kasolmanali
+##Delhi-4n5d-parvativalley
+##Delhi-4n5d-birkasol
 ##bangalore-Weekend-coorg
 ##bangalore-Weekend-wayanad
 ##bangalore-Weekend-hampi
 ##bangalore-Weekend-gokarna
+
 
 ##Meghalaya Road Trip
 ##sikkim-roadtrip
@@ -916,26 +920,72 @@ Facebook: www.facebook.com/wander.on
 Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+####Delhi-4n5d-kasolmanali
 
-##
-
-WanderOn Weekend Trip 
+WanderOn Weekend Trip kasolmanali (4night/5days)
 
 About:
+The Himalayas, fulfilling its promise, are a reservoir of the immense amount of ‘Him’ in the forms of Ice, Fresh and Underground Water. And the seeping of this moisture originates several rivers, which flows through the land of Himachal, namely Sutlej, Beas, Ravi, Chenab, and the Yamuna. It is also the reason for dozens of lakes that covered Himachal Pradesh.
 
+From the underground waters to the peak of mountains, Himalayas has blessed Himachal with great natural riches. In between, the Passes, the Valleys, and the Hot Springs are also the gifts of Himalaya to Himachal.
+
+A land of splendid mountains, a pristine place which feeds and provides solace to the mind and soul, a pious land which is associated with the supernatural, an enigma of a place which attracts people from every nook and corner of the world- It’s incredible.
 
 Itinerary:
-➤
+
+Day 1: Kasol | Chalal | Cafe Hopping
+➤ Depart from Delhi at 06:30 pm on Day 0.
+➤ Reach Kasol by morning.
+➤ Soak in the peace & beauty of Parvati Valley.
+➤ You can explore the Kasol market, and try different cuisines at the local Hippie Cafe’s, or just relax by the gushing Parvati River.
+➤ In the evening, go for a hike to Chalal village and capture some beautiful views of Parvati Valley.
+➤ Chill at the cafe’s in Kasol and return to the Hotel for an early night.
+
+Day 2: Kheerganga Trek | Camping
+➤ After breakfast, start the drive to the trek starting point at Barsheni.
+➤ Trek for 12 km along the Parvati Valley, crossing numerous waterfalls and spotting some breathtaking views.
+➤ Reach Kheerganga and relax at the bonfire at the campsite.
+➤ Dinner and overnight at the camps.
+
+Note: In case the route to Kheerganga is closed due to snowfall, we’ll be trekking up to Rudranag (Mid Way Point) and stay in camps at Rudranag itself.
+
+Day 3: Departure for Manali
+➤ Start trekking down to reach to Kasol.
+➤ After lunch, start the scenic drive to Manali.
+➤ Check in to the hotel, have dinner and rest.
+
+Day 4: Manali Local Sightseeing
+➤ Wake up and have breakfast at the hotel.
+➤ Go for the local sightseeing of Manali.
+➤ Places to Visit – Vashishth Temple, Jogni Falls, Hidamba Temple, Mall Road.
+➤ Come back by evening, stroll through the streets of Old Manali and check out different Hippie Café’s.
+➤ Come back to hotel & sleep overnight.
+
+Day 5: Departure
+➤ Wake up lazy morning and after having breakfast explore more of the local market of Manali for some final shopping.
+➤ Head back to Delhi by evening with some amazing trip memories.
+➤ Reach Delhi next day morning.
+
 
 Inclusions:
-✓ 
+✓ Entire travel as per the itinerary.
+✓ Accommodation for 4 nights – 1 night in a hotel at Kasol, 1 night in camps at Kheerganga, 2 nights in a hotel/hostel at Manali on triple/quad sharing basis.
+✓ A total of 7 meals – 1 meal on Day 1 (Breakfast) + 2 meals on Day 2 (Breakfast + Dinner) +2 meals on Day 3 (Breakfast + Dinner) +1 meal on Day 4 (Breakfast) +1 meal on Day 5 (Breakfast).
+✓ Team Captain throughout the trip.
+✓ Guided trek from Barsheni to Kheerganga.
+✓ Old Manali Cafe Crawl.
+✓ Driver night charge, toll tax, and parking charges.
+
 
 Exclusions:
-✗
+✗ GST (5%) is applicable extra.
+✗ Any other Food and Beverage charge that is not included in the package.
+✗ Tips to guide, helper, cook or, staff member or any monument/viewpoint entry fee.
+✗ Any other expense not mentioned in the inclusion column.
 
 Costing:
-*
+INR 11,499/- per peson
 
 To know more about the trip - 
 
@@ -951,26 +1001,86 @@ Facebook: www.facebook.com/wander.on
 Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-##
+How to find us
 
-WanderOn Weekend Trip 
+
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+##Delhi-4n5d-parvativalley
+
+WanderOn Weekend Trip Parvati Valley (4Nights/5Days)
 
 About:
+Stretched along the lovely Parvati River with mountains rising all around, Kasol is the main traveler hang-out in the valley. It’s a small village but almost overrun with reggae bars, bakeries and cheap guesthouses catering to a large backpacker crowd, nowadays including growing numbers of Indians. It’s also a summertime venue for trance parties transplanted from Goa and at any time an easy base for exploring the forested valley or just chilling out.
 
+Remote Malana, high on a hillside 20km up a side valley north of Jari, is one strange village. Its people – descended, according to legend, from deserters from Alexander the Great’s army speak their own unique language, operate what’s called the world’s oldest democracy, consider outsiders unclean and step aside if you pass them to avoid being touched.
 
 Itinerary:
-➤
+➤ 
+Day 1: Kasol | Chalal | Cafe Hopping
+➤ Depart from Delhi at 06:30 pm on Day 0.
+➤ Reach Kasol by morning.
+➤ Soak in the peace & beauty of Parvati Valley.
+➤ You can explore the Kasol market, and try different cuisines at the local Hippie Cafe’s, or just relax by the gushing Parvati River.
+➤ In the evening, go for a hike to Chalal village and capture some beautiful views of Parvati Valley.
+➤ Chill at the cafe’s in Kasol and return to the Hotel for an early night.
+
+Day 2: Malana Day Hike
+➤ Wake up early morning have breakfast, and head for Malana.
+➤ The most beautiful village in the Parvati Valley, situated at around 20 km from Kasol.
+➤ This trek takes you to the landscapes, ancient villages, mountain valleys and on the top, snow-capped mountains of ‘Chandrakhani’ and ‘Deo Tibba’.
+➤ Spend some peaceful time in the village.
+➤ Come back to Kasol by night.
+➤ Dinner & sleep overnight.
+
+Day 3: Kheerganga Trek | Camping
+➤ After breakfast, start the drive to the trek starting point at Barsheni.
+➤ Trek for 12 km along the Parvati Valley, crossing numerous waterfalls and spotting some breathtaking views.
+➤ Reach Kheerganga and relax at the bonfire at the campsite.
+➤ Dinner and overnight at the camps.
+
+Note: In case the route to Kheerganga is closed due to snowfall, we’ll be trekking up to Rudranag (Mid Way Point) and stay in camps at Rudranag itself.
+
+Day 4: Tosh Village Trek
+➤ Start trekking down to reach to Barsheni.
+➤ Drive to Tosh village. Hike through the village to reach the Guest House.
+➤ Dinner and Bonfire under a billion stars.
+
+Day 5: Departure
+➤ Hike to the nearby waterfall.
+➤ Sit, relax and take in the beauty of the majestic Himalaya.
+➤ Start trekking down to reach to Kasol.
+➤ By evening, depart back to Delhi with some amazing memories of the trip. Reach Delhi next morning.
+
 
 Inclusions:
-✓ 
+✓ Entire travel as per the itinerary.
+✓ Accommodation for 4 nights – 1 night in a hotel at Kasol, 1 night in camps at Kheerganga, 2 nights in a hotel/hostel at Manali on triple/quad sharing basis.
+✓ A total of 7 meals – 1 meal on Day 1 (Breakfast) + 2 meals on Day 2 (Breakfast + Dinner) +2 meals on Day 3 (Breakfast + Dinner) +1 meal on Day 4 (Breakfast) +1 meal on Day 5 (Breakfast).
+✓ Team Captain throughout the trip.
+✓ Guided trek from Barsheni to Kheerganga.
+✓ Old Manali Cafe Crawl.
+✓ Driver night charge, toll tax, and parking charges.
 
 Exclusions:
-✗
+✗ GST (5%) is applicable extra.
+✗ Any other Food and Beverage charge that is not included in the package.
+✗ Tips to guide, helper, cook or, staff member or any monument/viewpoint entry fee.
+✗ Any other expense not mentioned in the inclusion column.
+
+Dates
+09th November – 15th November
+30th November – 06th December
+07th December – 13th December
+21st December – 27th December
+27th December – 02nd January
+
+Departure Point
+Vidhan Sabha Metro Station (New Delhi)	
 
 Costing:
-*
+INR 11,499/
 
 To know more about the trip - 
 
@@ -986,28 +1096,76 @@ Facebook: www.facebook.com/wander.on
 Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+##Delhi-4n5d-birkasol
 
-##
-
-WanderOn Weekend Trip 
+WanderOn Weekend Trip Bir kasol (4Night/5Days)
 
 About:
+The village of Bir, located in the Kangra district of Himachal Pradesh India, is internationally famous as the base for some of the best paragliding in the world. The take-off point at Billing, 14km up a winding road from Bir and 1000m higher, hosts major competitive flying events most years in October or November (including a round of the Paragliding World Cup in 2015). Experienced paragliders fly as far as Dharamshala, Mandi, and Manali from here.
 
+Stretched along the lovely Parvati River with mountains rising all around, Kasol is the main traveler hang-out in the valley. It’s a small village but almost overrun with reggae bars, bakeries and cheap guesthouses catering to a large backpacker crowd, nowadays including growing numbers of Indians. It’s also a summertime venue for trance parties transplanted from Goa and at any time an easy base for exploring the forested valley or just chilling out.
 
 Itinerary:
-➤
+Day 1: Bir-Billing Trek | Camping
+➤ Depart from Delhi at 6:30 pm on Day 0
+➤ Reach Bir by morning.
+➤ After breakfast and freshen up, head out for the sightseeing. Visit Monasteries around the village and engage with the monks.
+➤ After lunch start the trek to Billing. Enjoy the Panoramic views of the sunset.
+➤ Check-In to the camps followed by bonfire and dinner.
+
+Day 2: Paragliding | Kasol
+➤ Wake up to a beautiful morning and set yourself up for the fly of your life.
+➤ After breakfast, meet your pilots at the Take Off point and experience the High Fly from Billing to Bir.
+➤ After lunch and some shopping, start the scenic drive to Kasol.
+➤ Check-in to the hotel followed by bonfire and dinner.
+
+Day 3: Chalal Village Trek | Kasol Cafe hopping
+➤ Soak in the peace & beauty of Parvati Valley.
+➤ You can explore the Kasol market, and try different cuisines at the local Hippie Cafe’s, or just relax by the gushing Parvati River.
+➤ In the evening, go for a hike to Chalal village and capture some beautiful views of Parvati Valley.
+➤ Chill at the cafe’s in Kasol and return to the Hotel for an early night.
+
+Day 4: Kheerganga Trek
+➤ After breakfast, start the drive to the trek starting point at Barsheni.
+➤ Trek for 12 km along the Parvati Valley, crossing numerous waterfalls and spotting some breathtaking views.
+➤ Reach Kheerganga and relax at the bonfire at the campsite.
+➤ Dinner and overnight at the camps.
+
+Note: In case the route to Kheerganga is closed due to snowfall, we’ll be trekking up to Rudranag (Mid Way Point) and stay in camps at Rudranag itself.
+
+Day 5: Departure
+➤ Start trekking down to reach to Kasol.
+➤ On the way, visit the Manikaran Gurudwara.
+➤ By evening, depart back to Delhi with some amazing memories of the trip. Reach Delhi next morning.
 
 Inclusions:
-✓ 
+✓ Entire travel as per the itinerary in an AC vehicle.
+✓ Accommodation for 1 night at Billing camps, 2 nights at Kasol Hotel, 1 night in camps at Kheerganga (triple sharing)
+✓ Breakfast on Day 2 till Day 5, Dinner on Day 1, Day 2 and Day 4.
+✓ Paragliding at Bir Billing.
+✓ Experienced trip captain throughout the trip.
+✓ Driver night charge, toll tax, and parking charges.
 
 Exclusions:
-✗
+✗ GST (5%) is applicable extra.
+✗ Any other Food and Beverage charge that is not included in the package.
+✗ Charges for Video/photos while paragliding or tips to glider, guide, helper, cook or, staff member or any monument/viewpoint entry fee.
+✗ Any other expense not mentioned in the inclusion column.
+
+Date
+23rd November – 29th November
+07th December – 13th December
+21st December – 27th December
+27th December – 02nd January
+
+Departure point
+Vidhan Sabha Metro Station (New Delhi)	
 
 Costing:
-*
+INR 13,999/-
 
-To know more about the trip - 
+To know more about the trip - https://www.wanderon.in/birbillingkasol/
 
 Contact - 
 Call - +918178975830 
