@@ -91,7 +91,7 @@ Please note that if you find the above number not reachable or switched-off, the
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 ##Meghalaya Road Trip
 
-WanderOn Weekend Trip Meghalaya Road Trip(5 Nights/6 Days)
+WanderOn Weekend Trip Meghalaya Road Trip(5Nights/6Days)
 
 About:
 Meghalaya- A Potpourri of Beauty & Culture
@@ -163,14 +163,30 @@ Exclusions:
 Note: INR 10,000/- needs to be submitted as security for the bike before the start of the trip. Any damage to the bike, except engine damage, has to be borne directly by the client.
 
 Date
+23rd November 12:00 PM - 28th November 10:00 AM
+07th December 12:00 PM - 12th December 10:00 AM
+28th December 12:00 PM - 02nd January 10:00 AM
+11th January 12:00 PM - 16th January 10:00 AM
+25th January 12:00 PM - 30th January 10:00 AM
+08th February 12:00 PM - 13th February 10:00 AM
+22nd February 12:00 PM - 27th February 10:00 AM
+07th March 12:00 PM - 12th March 10:00 AM
+28th March 12:00 PM - 02nd April 10:00 AM
+10th April 12:00 PM - 15th April 10:00 AM
+25th April 12:00 PM - 30th April 10:00 AM
 
 
 Departure point
-
+Guwahati
 
 Costing:
-Tempo traveler	INR 17,999/-
-Bike				INR 21,999/-
+Sharing Cab	INR 17,999/-
+RE 350cc (Solo Rider)	INR 21,999/-
+RE 350cc (With Pillion Rider)	INR 18,499/-
+RE Himalayan (Solo Rider)	INR 23,999/-
+RE Himalayan (With Pillion Rider)	INR 20,499/-
+Bajaj Dominar (Solo Rider)	INR 22,999/-
+Bajaj Dominar (With Pillion Rider)	INR 19,499/-
 
 To know more about the trip - https://www.wanderon.in/meghalayaroadtrip/
 
@@ -1179,9 +1195,8 @@ Facebook: www.facebook.com/wander.on
 Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-
-##
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+##Delhi-Weekend-Kasolkheergana
 
 WanderOn Weekend Trip 
 
@@ -1215,8 +1230,7 @@ Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-
-##coorg
+##bangalore-Weekend-coorg
 
 WanderOn Weekend Trip coorg (1 Night/2 Days)
 
@@ -1289,8 +1303,7 @@ Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-
-##wayanad
+##bangalore-Weekend-wayanad
 
 WanderOn Weekend Trip wayanad(1 Night/2 Days)
 
@@ -1350,7 +1363,6 @@ Exclusions:
 Departure point
 
 
-
 Date
 08th November – 11th November
 15th November – 18th November
@@ -1378,9 +1390,8 @@ Facebook: www.facebook.com/wander.on
 Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-
-##Hampi
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+##bangalore-Weekend-Hampi
 
 WanderOn Weekend Trip hampi (1 Night/2 Days)
 
@@ -1464,10 +1475,7 @@ Facebook: www.facebook.com/wander.on
 Facebook Community - http://bit.ly/WanderOnFbGroup
 
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-
-
-
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 Inclusions
 ✓ Entire travel as per the itinerary.
@@ -1476,8 +1484,6 @@ Inclusions
 ✓ Paragliding cost from Billing to Bir.
 ✓ Team captain throughout the trip.
 ✓ Driver night charges, toll tax, parking charges.
-
-
 
 
 GST (5%) is applicable extra.
@@ -1492,10 +1498,6 @@ RE Classic 500 (With Pillion)	INR 29,999/-
 RE Himalayan (Solo Rider)	INR 37,499/-
 RE Himalayan (With Pillion)	INR 31,499/-
 Self Bike	INR 24,499/-
-
-
-
-
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
@@ -1528,5 +1530,53 @@ cover photo -
 without date and price
 
 
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+##
+
+WanderOn Weekend Trip  ()
+
+Trip Duration: 
+
+About:
+
+
+Itinerary:
+➤ 
+
+
+Inclusions:
+✓ 
+
+
+Exclusions:
+✗ 
+
+
+Date Available:
+
+
+Departure Point:
+
+
+Costing:
+
+
+
+To know more about the trip - 
+
+Contact - 
+Call - +918178975830 
+WhatApp - http://bit.ly/WanderOnWeekendGetaways
+Email id - hello@wanderon.in
+
+You can follow us on -
+Website: www.wanderon.in/
+Instagram: www.instagram.com/wander.on
+Facebook: www.facebook.com/wander.on
+Facebook Community - http://bit.ly/WanderOnFbGroup
+
+Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
