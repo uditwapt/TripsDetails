@@ -1198,22 +1198,68 @@ Please note that if you find the above number not reachable or switched-off, the
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 ##Delhi-Weekend-Kasolkheergana
 
-WanderOn Weekend Trip 
+WanderOn Weekend Trip Kasol kheergana (2 Nights/3 Days)
 
 About:
+Popular for the hot springs and scenic views of the Himalayan Mountains, Kheerganga is situated in Kullu district of Himachal Pradesh. Located about 22 km away from the pilgrimage town of Manikaran, trekking through the dense forests and a bath in its hot springs are a refreshing experience. You will pitch your own tents, help in cooking food and collect wood for bonfire. Beside this you can enjoy nature walking, leisurely walks in the forest, mountain climbing and indulge in landscape photography during your stay at Kheerganga. The view of the sunset and trekking through Kheerganga forests are an incredible experience. Barshaini is the last motorable point. While trekking from Barshaini, you will come across several sightseeing options like Rudra-Nag, the serpent-shaped waterfall, the rock formation of Pandu Pul and the Pin-Parvati Pass (5400 m).
 
 
 Itinerary:
-➤
+
+Day 1: Kasol Local Sightseeing | Chalal Village Trek
+➤ Start from Delhi by 06:30 p.m.
+➤ Pit stop for dinner at any decent roadside hotel.
+➤ Reach Kasol by morning.
+➤ After having breakfast and some leisure, you can self-explore Kasol.
+➤ Go for the Riverwalk (besides the Parvati River), spend some time in the calmness and serenity of Parvati valley.
+➤ Go for the Chalal trek in the evening.
+➤ Come back to resort/ camps by evening.
+➤ You can also visit the local market and explore the famous Israeli’s Cafe’s like Little Italy, Evergreen café, Shiva café, German Bakery, Moonlight café.
+➤ Bonfire and dinner & sleep overnight at resort.
+
+Day 2: Trek to Rudranag
+➤ Wake up early morning and after having breakfast, head for Rudranag(Mid Point of Kheerganga Trip).
+➤ Trek will start from a village called Barsheni (22 km from Kasol) and you will be transferred to Barsheni in private vehicles.
+➤ The Trek Trail of Rudranag is 6kms with a moderate difficulty level.
+➤ Enjoy your walk in the heart of the beautiful Parvati valley with a stunning view of snowcapped mountains all around.
+➤ Reach Rudranag by evening.
+➤ Have your dinner at bonfire under the sky studded with stars and snowcapped mountains all around.
+➤ Sleep overnight in the camps and have an experience of a lifetime.
+
+Day 3: Departure
+➤ Wake up early morning to see a beautiful sunrise and after having breakfast head back to Kasol.
+➤ Visit the very famous shiv mandir (the last of this region) and enjoy the calmness and peacefulness of this place.
+➤ Trek your way down to Barsheni and reach Kasol by evening.
+➤ Head back to Delhi with lots of amazing trip memories the next day morning.
+
 
 Inclusions:
-✓ 
+✓ Entire travel as per the itinerary.
+✓ Accommodation in a hotel at Kasol for 1 night & in camps at Rudranag for 1 night.
+✓ 4 meals – 1Meal (Day 1) + 2 Meals (Day 2) + 1 Meal (Day 3)
+✓ Team Captain throughout the trip.
+✓ Driver night charges, toll tax, parking charges.
+
 
 Exclusions:
-✗
+✗ GST (5%) is applicable extra.
+✗ Anything not mentioned in the inclusions.
+✗ Tips to helper, cook, guide or any staff.
+✗ Any other costing involved due to any kind of natural calamity, forced circumstances which are out of our control.
+
+Date
+20th December – 24th December
+27th December – 31st December
+29th December – 02nd January
+
+Departure point:
+Vidhan Sabha Metro Station (Delhi)	
+
 
 Costing:
-*
+Quad Sharing	INR 6499/-
+Triple Sharing	INR 6799/-
+Double Sharing	INR 6999/-
 
 To know more about the trip - 
 
@@ -1579,4 +1625,3 @@ Facebook Community - http://bit.ly/WanderOnFbGroup
 Please note that if you find the above number not reachable or switched-off, then please leave us a WhatsApp message asking to call you back.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-
